@@ -1,0 +1,2 @@
+# kaazimtaani
+task earn platform
